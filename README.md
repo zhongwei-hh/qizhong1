@@ -1,2 +1,0 @@
-# qizhong1
-qizhong
